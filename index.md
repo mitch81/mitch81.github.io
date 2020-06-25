@@ -1,1 +1,2 @@
 # Pat & Mat
+Pat & Mat (Czech and Slovak: Pat a Mat) is a Czechoslovak slapstick stop-motion animated series. The main characters of the series are two handymen, Pat and Mat, who are inventive but extremely clumsy.
