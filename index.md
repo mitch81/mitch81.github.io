@@ -6,4 +6,4 @@ Pat & Mat (Czech and Slovak: Pat a Mat) is a Czechoslovak slapstick stop-motion 
 * extremely clumsy
 * never give up until they solve the problem
 
-> ... a je to! (... and that's it!)
+> A je to!
